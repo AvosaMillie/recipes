@@ -4,5 +4,4 @@
 * Lime
 * Salt
 ## Instructions
-* Add salt in a bowl(Millie 2)
-
+* Slice the avocado into small pieces and place in a bowl
